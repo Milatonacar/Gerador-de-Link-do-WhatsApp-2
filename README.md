@@ -1,0 +1,1 @@
+# Gerador-de-Link-do-WhatsApp-2
